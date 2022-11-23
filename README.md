@@ -1,0 +1,5 @@
+- @maxcolbe
+- Comp-sci student
+- Contact:
+    - Email (zetoncher@gmail.com)
+    - Instagram (@kristianzetocha)
